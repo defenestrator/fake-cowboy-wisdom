@@ -17,5 +17,5 @@
 - Is the wind in your face, or are you walking the wrong way?
 - Dirt in your teeth builds character; Usually a villain.
 - Another way to eat a hot meal is don't.
-- Any time you think you want to fly away you, most likely, have a long walk ahead.
+- If you think you want to fly away you most likely have a long walk ahead.
 - Hippies usually aren't.
