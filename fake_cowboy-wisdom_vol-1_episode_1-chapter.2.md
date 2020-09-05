@@ -13,7 +13,7 @@ _and the wisdom never showed up_
 - Timing is not everything, everything is everything.
 - You literally never have a need to use that word.
 - Any test of truthiness requires a timestamp.
-- Looking like an ass is a boon, for the wise.
+- Looking like an ass is a boon for the wise.
 - Expectations are a hurdle, not a limbo bar.
 - Free and fair elections exist elsewhere.
 - When the sun is high, stay low.
