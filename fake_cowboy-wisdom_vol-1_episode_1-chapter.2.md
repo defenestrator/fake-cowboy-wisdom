@@ -12,7 +12,7 @@ _and the wisdom never showed up_
 - Don't be black when the cops show up. #CharlesKinsey.
 - Timing is not everything, everything is everything.
 - You literally never have a need to use that word.
-- The truth function accepts the time variable.
+- Any test of truthiness requires a timestamp.
 - Looking like an ass is a boon, for the wise.
 - Expectations are a hurdle, not a limbo bar.
 - Free and fair elections exist elsewhere.
