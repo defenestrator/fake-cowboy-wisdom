@@ -7,7 +7,6 @@ _and the wisdom never showed up_
 - Enough plural negatives will make the biggest fool feel like a genius.
 - Seven Wives For Seven Brothers exists. No wonder we are screwed up.
 - Cloud Architecture is what Howl's Moving Castle was about.
-- In the land of blind wombats the midnight sun is king.
 - Computational instances are the cattle we wrangle now.
 - Don't be black when the cops show up. #CharlesKinsey.
 - Timing is not everything, everything is everything.
