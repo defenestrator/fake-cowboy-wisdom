@@ -1,21 +1,18 @@
-- A man's boots are the keyhole to his desires
-- Seven different toads can call you a frog, but you're still just an ass.
+- Ten stones in your boot are better than one in your skull.
+- A lady is like a rifle in some way I'm about to fabricate.
 - Raccoons don't climb a tree that smells like porcupine.
 - A greasy beard is a sign of a manicured lie.
 - Calling a rabbit a lion doesn't mean it's going to steal your steak.
+- Seven different toads can call you a frog, but you're still just an ass.
 - Rattlesnakes don't much care for rain. Keep walking.
-- Ten stones in your boot are better than one in your skull.
-- A lady is like a rifle in some way I'm about to fabricate.
 - Every hog is bacon waiting to happen.
 - Happiness is a lack of sensible paranoia.
-- Computer maths are like fireflies, oh hey, is that soup?
 - Delicious lies are always on sale. A bit crooked, but otherwise fine.
 - If the wind smells like burning corpses, hide a while.
-- Not every piece of advice is going to work out. Best to assume the opposite.
 - Pessimism is a fool's best excuse.
 - Angry people always find what they are looking for. Happy ones, the same.
 - Is the wind in your face, or are you walking the wrong way?
 - Dirt in your teeth builds character; Usually a villain.
 - Another way to eat a hot meal is don't.
-- If you want to fly away you most likely have a long walk ahead.
+- If you want to fly away you have a long walk ahead.
 - Hippies usually aren't.
