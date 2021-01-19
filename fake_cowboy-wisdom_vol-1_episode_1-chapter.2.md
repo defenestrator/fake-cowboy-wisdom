@@ -15,6 +15,5 @@ _and the wisdom never showed up_
 - Any test of truthiness requires a timestamp.
 - Looking like an ass is a boon for the wise.
 - Expectations are a hurdle, not a limbo bar.
-- Free and fair elections exist elsewhere.
 - When the sun is high, stay low.
 - Surreality is just too real.
